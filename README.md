@@ -4,7 +4,8 @@ I am Jackson TAILOR
 
 ## About Me
 
-Technology and Cybersecurity professional with experience in:
+Cybersecurity | Technology | Economics | Journalism | Writer & Researcher
+with experience in:
 
 - Cybersecurity
 - IP Networks
